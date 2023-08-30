@@ -1,6 +1,6 @@
 # Halo semua! 
 Perkenalkan nama saya **Ferdiansyah**.\
-Saya baru saja lulus dari perguruan tinggi Universiras Bina Sarana Informatika
+Saya baru saja lulus dari perguruan tinggi Universiras Bina Sarana Informatika.\
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/ferdiansyah-a0772525b/)ku ya.
  
 <p align="left">
